@@ -1,1 +1,2 @@
-DON'T SPOIL ANYTHING YOU RATS, R̸͔̓A̴͕̒T̵͇̓Ŝ̸̨!̵͎͐!̵̯͛
+If you expect a return, don't.
+I have since left the deltarune community and would rather not get back into it for now.

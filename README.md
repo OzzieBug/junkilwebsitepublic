@@ -1,2 +1,2 @@
-If you expect a return, don't.
-I have since left the deltarune community and would rather not get back into it for now.
+I'm back to lurk, but the website isnt returning nor am i going to get anyone on my behalf to renew it.
+Stay safe out there, friends.
